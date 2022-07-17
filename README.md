@@ -1,2 +1,2 @@
 # Estella-Conrado
-💫
+★
