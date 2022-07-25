@@ -18,7 +18,8 @@
 .email pessoal:         
 estellacomrado@gmail.com 
 
-.email escola:  estella.conrado@escola.pr.gov.br 
+.email escola: 
+ estella.conrado@escola.pr.gov.br 
 
 
 
