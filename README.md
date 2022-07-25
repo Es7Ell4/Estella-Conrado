@@ -19,7 +19,7 @@
 estellacomrado@gmail.com 
 
 .email escola: 
- estella.conrado@escola.pr.gov.br 
+estella.conrado@escola.pr.gov.br 
 
 
 
