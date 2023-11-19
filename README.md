@@ -11,15 +11,14 @@
 
 .Estudando no ensino médio 
 
-.Whatsapp: +55 998309028 
+.Telefone: +55 998315828
 
-.Instagram: @iam.estella_
+.Instagram: @httpst.ella 
 
 .email pessoal:         
 estellacomrado@gmail.com 
 
-.email escola: 
-estella.conrado@escola.pr.gov.br 
+...UNSHAKABLE
 
 
 
